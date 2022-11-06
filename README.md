@@ -1,0 +1,1 @@
+# Gamma_group_E-shop
